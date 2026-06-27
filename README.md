@@ -1,2 +1,2 @@
-# Malib--bot
+# Malibú-bot
 ໒꒰՞ ܸ. .ܸ՞꒱ა
